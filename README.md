@@ -6,7 +6,7 @@ hiya /!! im frosty or i cud go by heirloom , eve , scag or whitelily !
                              ˚★ 
                 ⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹
            i mostly play music bc why not !!
-               remu is very awsome ( rat / giggles ! ^^ )
+               mal is very awsome ( rat / giggles ! ^^ )
                   cuddles are much appreciated and always allowed !!
                       burps      -`✮´-⊹more info in straw !! (sign straw ?? )
                                               ˚★ 
