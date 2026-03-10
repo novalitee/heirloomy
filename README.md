@@ -1,5 +1,5 @@
 
-# Mainly for ponytwon !! ( ^ _ ^ )
+# Mainly for ponytown !! ( ^ _ ^ )
 
 hiya /!! im frosty or i cud go by eve and any nicknames are appreciated and allowed ^^
 
